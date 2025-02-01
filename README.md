@@ -1,1 +1,0 @@
-# roycdaviesuoa.github.io
